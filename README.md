@@ -15,7 +15,7 @@
     
         1. Het is onmogelijk om van burgers die toetreden tot de PZP te eisen dat zij geen politieke overtuiging hebben. Wel is het essentieel dat de _verkozenen_ binnen de PZP een ideologisch neutrale houding aannemen. Zij bepalen immers welke de in het parlement besproken wetsvoorstellen worden voorgelegd aan een volksjury, samengesteld uit door loting aangeduide burgers. Bovendien laten zij zich bij de stemming in het parlement, die volgt op de beoordeling van het wetsvoorstel door de volksjury leiden door de uitkomst van die beraadslaging (zie 4.4.).
         
-        1. De kandidaten voor de PZP mogen dus in principe een voorgeschiedenis hebben op voorwaarde dat ze zich houden aan de regels beschreven onder 3.2.. In de praktijk is de aanwezigheid van kandidaten met een sterk ideologisch profiel enkel wenselijk als de lijsten ook kandidaten met contrasterende profielen bevatten. ‘Kleurloze’ kandidaten zijn beter geschikt dan kandidaten met een ideologische voorgeschiedenis. Indien er meer kandidaten zijn dan plaatsen, dan krijgen de kleurloze kandidaten voorrang. Uitzonderingen zijn uiteraard altijd mogelijk (zie 3.3.).
+        1. De kandidaten voor de PZP mogen dus in principe een voorgeschiedenis hebben op voorwaarde dat ze zich houden aan de regels beschreven onder 3.2.. In de praktijk is de aanwezigheid van kandidaten met een sterk ideologisch profiel enkel wenselijk als de lijsten ook kandidaten met contrasterende profielen bevatten. 'Kleurloze’ kandidaten zijn beter geschikt dan kandidaten met een ideologische voorgeschiedenis. Indien er meer kandidaten zijn dan plaatsen, dan krijgen de kleurloze kandidaten voorrang. Uitzonderingen zijn uiteraard altijd mogelijk (zie 3.3.).
     
     1. Vergoedingen leden 
     
